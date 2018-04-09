@@ -1,3 +1,1 @@
 # qimaOfficial
-
-xx
